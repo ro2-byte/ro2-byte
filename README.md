@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @ro2-byte
-- 👀 I’m interested in making new friends 
-- 🌱 I’m currently learning software engineering 
+- 🌱 I’m currently IT 
 - 💞️ I’m looking to collaborate on nothing 
 - 📫 How to reach me 0745022430
 - 😄 Pronouns: ...
