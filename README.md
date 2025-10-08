@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ro2-byte
-- 🌱 I’m currently IT 
+- 🌱 I’m currently studying IT 
 - 💞️ I’m looking to collaborate on nothing 
 - 📫 How to reach me 0745022430
 - 😄 Pronouns: ...
